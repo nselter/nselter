@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on any projects that I would fit well in
 - 📫 How to reach me: noahjohns808@gmail.com
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: I am a nomad at heart, always moving about once a year
+- ⚡ Fun fact: I can juggle for an unlimited amount of time
 
 <!---
 nselter/nselter is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
